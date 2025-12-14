@@ -1,0 +1,1 @@
+# hwcollection-privacy-policy
